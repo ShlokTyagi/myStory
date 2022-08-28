@@ -1,0 +1,1 @@
+They were going on a trip in night
